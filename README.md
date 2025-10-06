@@ -1,1 +1,3 @@
-# 1150080012_Bui-Hai-Duong_Lab3-4
+https://github.com/sugartank555/Lab3
+https://github.com/sugartank555/Lab3-2
+https://github.com/sugartank555/Lab4)
